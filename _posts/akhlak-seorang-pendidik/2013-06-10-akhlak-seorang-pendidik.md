@@ -13,20 +13,7 @@ Sufyan Ats-Tsauri berkata, “Hendaknya tidak menyeru kepada kebaikan dan melara
 
 Pendidik hendaknya juga menjadi orang terdepan dan memberi contoh, karena sangat berat ancaman bagi orang yang tidak konsekuen terhadap ajakannya sendiri.  
 
-> Sabda Nabi : ” Nanti pada hari kiamat ada seorang didatangkan lalu
-> dilempar ke dalam neraka, maka ususnya keluar.Lalu ia berputar-putar
-> laksana keledai berputar-putar di sekitar penggilingan.Kemudian
-> penghuni neraka mengerumuninya dan bertanya ” Hai Fulan, mengapa kamu?
-> Bukankah kamu yang menyeru kepada kebaikan & melarang dari
-> kemungkaran?’ Ia menjawab Ya aku telah menyeru kepada kebaikan, tapi
-> aku sendiri tidak mengerjakannya, dan aku melarang orang dari
-> kemungkaran tapi aku sendiri mengerjakannya” (Diriwayatkan olh imam
-> muslim dalam shahih-nya (5305)
-> 
-> Al-Qurthubi berkata “Hadits shahih di atas memberi petunjuk bahwa
-> siksaan terhadap orang yang mengetahui kebaikan dan kemunkaran lalu
-> melanggarnya itu lebih berat daripada siksaan untuk orang yang tidak
-> mengetahui karena ia seperti orang yang menghina larangan Allah dan
-> meremehkan hukum-hukum-NYa. Ia termasuk orang yang tidak bermanfaat
-> ilmunya.”
+Sabda Nabi : ” Nanti pada hari kiamat ada seorang didatangkan lalu dilempar ke dalam neraka, maka ususnya keluar.Lalu ia berputar-putar laksana keledai berputar-putar di sekitar penggilingan.Kemudian penghuni neraka mengerumuninya dan bertanya ” Hai Fulan, mengapa kamu? Bukankah kamu yang menyeru kepada kebaikan & melarang dari kemungkaran?’ Ia menjawab Ya aku telah menyeru kepada kebaikan, tapi aku sendiri tidak mengerjakannya, dan aku melarang orang dari kemungkaran tapi aku sendiri mengerjakannya” (Diriwayatkan olh imam muslim dalam shahih-nya (5305)
+
+Al-Qurthubi berkata “Hadits shahih di atas memberi petunjuk bahwa siksaan terhadap orang yang mengetahui kebaikan dan kemunkaran lalu melanggarnya itu lebih berat daripada siksaan untuk orang yang tidak mengetahui karena ia seperti orang yang menghina larangan Allah dan meremehkan hukum-hukum-NYa. Ia termasuk orang yang tidak bermanfaat ilmunya.”
 
