@@ -1,7 +1,7 @@
 # Site settings
 title: Dwi Santoso # site title
 description: >- # site description
-  Personal blog <a href="https://github.com/dwisantosobk" target="_blank" rel="noopener">@github</a>.
+  Personal blog untuk corat coret tulisan.
 lang: en-US # default lang
 timezone: Asia/Jakarta # set your timezone
 image: assets/img/ogp.png # This image used for Open Graph more info https://ogp.me/
@@ -22,7 +22,7 @@ author:
   avatar: /assets/img/avatar.jpg # change with your own avatar
 
 # URL settings
-url: "https://dwisantoso.github.io" #
+url: "https://dwisantoso.my.id" #
 baseurl:
 permalink: /:title/
 google_analytics: # leave it blank if not wish

@@ -1,10 +1,9 @@
-﻿---
+---
 title: Akhlak Seorang Pendidik
-date: -
+date: 2013-06-10
 tags: [tulisan]
 description: -
 ---
-
 Seorang pendidik dituntut untuk bersikap  **_lemah lembut_** dalam bertutur kata dan perangainya, sehingga akan memberikan kesan yang baik pada keluarga yang di didiknya. Firman allah :  
 
 > “Maka disebabkan rahmat dari Allah-lah kamu berlaku lemah lembut
